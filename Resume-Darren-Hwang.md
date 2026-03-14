@@ -1,6 +1,6 @@
 # **Darren Hwang** 
 
-dhwang101@gmail.com  •  650-796-9261  •  San Jose, California, United States   https://www.linkedin.com/in/ darren-hwang-sj 
+dhwang101@gmail.com  •  650-796-9261  •  San Jose, California, United States   https://www.linkedin.com/in/darren-hwang-sj 
 
 ## **SUMMARY** 
 
